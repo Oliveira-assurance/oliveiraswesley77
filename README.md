@@ -180,4 +180,4 @@ Tecnologias 🧑🏾‍💻<br>
 </p>
 
 🍀 Prazer em receber sua visita e muito obrigado!<br>
-⭐ Se algum projeto te ajudar, considere deixar uma estrela. Isso incentiva a produção de novos conteúdos e estudos.
+Eu sou um eterno aprendiz, se por acaso tiver alguma sugestão ou melhoria, fale comigo no meu Linkedin e podemos seguir dentro da filosofia de vida "melhora contínua"  
